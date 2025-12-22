@@ -13,7 +13,7 @@
 </p>
 <p align="center">
 always iwec unless close<br>
-  my beautiful partner @GHOSTBUSTERS-SFX<br>
+  my beautiful partner<a href="https://github.com/GHOSTBUSTERS-SFX">@GHOSTBUSTERS-SFX</a><br>
   <a href="https://fluffle.cc/bloxburg">fluffle.cc</a> <a href="https://pronouns.cc/@frostbyte">pronouns.cc</a>
   <img src="https://files.catbox.moe/dodz1x.png">
 </p>
