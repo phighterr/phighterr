@@ -15,4 +15,5 @@
 always iwec unless close<br>
   my beautiful partner @GHOSTBUSTERS-SFX<br>
   <a href="https://fluffle.cc/bloxburg">fluffle.cc</a> <a href="https://pronouns.cc/@frostbyte">pronouns.cc</a>
+  <img src="https://files.catbox.moe/dodz1x.png">
 </p>
